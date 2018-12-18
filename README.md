@@ -1,3 +1,3 @@
-www.qijundzcom
+www.qijundz.com
 
 this is my company website
